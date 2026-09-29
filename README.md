@@ -1,6 +1,6 @@
 # Cook Out Milkshake Flavors: Full List, Best Picks and Tips
 
-Looking for Cook Out milkshake flavors? Cook Out offers a wide selection of creamy shakes. The menu includes classic, fruit, candy, cookie, and dessert-inspired flavors.
+Looking for Cook Out milkshake flavors? Cook Out offers a wide selection of creamy shakes. The menu includes classic, fruit, candy, cookie, and dessert-inspired flavors. https://thecookout-menu.com/
 
 This guide covers Cook Out shake flavors, combinations, sizes, prices, food pairings, and ordering tips. Flavor availability can vary by location, so check your local Cook Out before ordering.
 
